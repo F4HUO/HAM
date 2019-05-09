@@ -1,1 +1,1 @@
-Mes notes, qui pourraient servir à d'autre :-)
+Mes notes, qui pourraient servir à d'autres :-)
